@@ -31,17 +31,17 @@ python main.py
 
 ## 💬 **Connect With Me**
 
-👉 **Telegram:** [**https://t.me/erfan4lx10**](https://t.me/erfan4lx10)
+👉 **Telegram:** [**https://t.me/wisdomspace1825**](https://t.me/wisdomspace1825)
 
 🌐 **Website:** [**https://erfan4lx.com**](https://erfan4lx.com) 
 
-📧 **Email:** [**erfan4lx@gmail.com**](mailto:erfan4lx@gmail.com)
+📧 **Email:** [**sandraprivate2415@gmail.com**](mailto:**sandraprivate2415@gmail.com)
 
 ---
 
 🆔My YouTube Channel : https://youtube.com/erfan4lx
 
-🆔My Telegram Channel : https://t.me/erfan4lx_news
+🆔My Telegram Channel : https://t.me/wisdomspace1825
 
 ⚠️ *Important Disclaimer*
 This project and video are for **educational, research, and administrative purposes only**.  
